@@ -1,1 +1,0 @@
-Eidetic Research
